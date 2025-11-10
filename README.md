@@ -8,7 +8,7 @@ If you encounter any issues or have feedback, please don’t hesitate to contact
 
 ## 📬 Contact Us
 
-**Email:** [support@yundeer.app](mailto:support@yundeer.app)
+**Email:** [contact@yundeer.com](mailto:contact@yundeer.com)
 
 We usually reply within **1–2 business days**.
 
